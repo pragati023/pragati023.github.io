@@ -1,1 +1,1 @@
-# pragati023.github.io
+# SkillSwings project
